@@ -5,6 +5,6 @@
 <p>
 <p><i>` ☁︎ ˚ ⋆ ｡☽ SWEET DREAMS . . . ᶻ 𝗓 𐰁`<i><p>
 <p>
-<p><I> C+H WHENEVER WANTED ! JUST ASK IF IM ALREADY WITH SOMEONE THOUGH ! <I><p>
+<p><I> C + H WHENEVER ! JUST PLEASE ASK IF IM ALREADY WITH SOMEONE . <I><p>
 <p><b> SHIPS INT WITH CAUTION ! ! <b><p>
   <img width="400" height="38" alt="image" src="https://github.com/user-attachments/assets/c4728113-52c2-4cc7-8102-75b9cfaf1390" />
